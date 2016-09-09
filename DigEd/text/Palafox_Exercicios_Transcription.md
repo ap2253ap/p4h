@@ -1,6 +1,6 @@
 EXERCICIOS
 DEVOTOS, Y PROVECHOSOS,
-en que se pide á la Virgen SS. su amparo
+en que se pide C! la Virgen SS. su amparo
 para la hora de la muerte,
 Por el Ilmo. Sr. D. Juan de Pala-
 fox Obispo de 0sma.
